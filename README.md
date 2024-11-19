@@ -1,4 +1,4 @@
-Muhammad ZUlhazmi Rafiqi Azhary (2116207)
+Muhammad Zulhazmi Rafiqi Azhary (2116207)
 
 This repo has been cloned
 
